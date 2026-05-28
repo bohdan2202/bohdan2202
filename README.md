@@ -21,5 +21,5 @@
 
 ## 📫 Зв'язок зі мною
 - **Email:** bohdan650628@gmail.com
-- **LinkedIn:** [Мій профіль](www.linkedin.com/in/bohdan-karmaniuk-79292b371)
+- **LinkedIn:** [Мій профіль](https://www.linkedin.com/in/bohdan-karmaniuk-79292b371)
 
